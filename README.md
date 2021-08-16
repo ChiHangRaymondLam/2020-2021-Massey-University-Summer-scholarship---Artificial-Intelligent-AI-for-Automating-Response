@@ -1,0 +1,1 @@
+# 2020-2021-Massey-University-Summer-scholarship---Artificial-Intelligent-AI-for-Automating-Response
